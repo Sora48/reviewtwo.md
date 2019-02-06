@@ -1,10 +1,10 @@
 Game Review for (Binding of Issac )
 
 
-Binding of Issac is a indie rogue like game 
+Binding of Issac is a indie rogue like game top down shooter but not a heavy top down like dead nation 
 
 Game Title
-Binding of Issac, no subtitle, and the https://steamcommunity.com/app/113200/discussions/0/846959362271000812/.
+Binding of Issac, no subtitle,  https://steamcommunity.com/app/113200/discussions/0/846959362271000812/.
 
 Rating
 i would give this game a 9 to 10 - 1 being the worse and 10 being the best 
